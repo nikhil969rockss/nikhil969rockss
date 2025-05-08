@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding languages like React
 - 🌱 I’m currently learning React
 - 💞️ I’m looking to collaborate on something new exciting
-- 📫 How to reach me ns9013604867@gmail.com
+- 📫 How to reach me nikhil969work@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
